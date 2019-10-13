@@ -5,7 +5,7 @@
 
 > How can you say that the sky is the limit when there are footprints on the moon !
 
-![I love myelf ! ](C:/Users/Shubham/Downloads/profile)
+![I love myelf ! ](profile.jpg)
 :metal:
 
 ## My email : *mom.shubh@gmail.com*
